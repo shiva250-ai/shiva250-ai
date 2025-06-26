@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @shiva250-ai
-- 👀 I’m interested in Major and Midscale AI Projects which will be of value for generations to come to attain self actualization , health , happiness and wealth.
-- 🌱 I’m  AI , No Code, ML , Data Science Professional Certified Industrial Engineer with Management Qualifications and Professionally Experienced in Project Controls, 
-- 💞️ I’m looking to collaborate on similarly interested teams or members
+- 👀 I’m interested in Major/Midsize/Small Energy/AI/Non-Profit Projects of value for current & future generations for self actualization,health,happiness and wealth.
+- 🌱 I’m  AI , No Code, ML , Data Science & NLP Certified(MIT) Industrial Engineer(PDACE) with Management(JNTU)
+- 💞️ I’m looking to collaborate with similar interested teams or members from anywhere including AI 's Or Robots Or "Angel" Investors
 - 📫 How to reach me : ysshivar@yahoo.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
