@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shiva250-ai
-- 👀 I’m interested in finance-ai for nse listed stocks
-- 🌱 I’m currently learning no code ai
+- 👀 I’m interested in Major and Midscale AI Projects which will be of value for generations to come to attain self actualization , health , happiness and wealth.
+- 🌱 I’m  AI , No Code, ML , Data Science Professional Certified Industrial Engineer with Management Qualifications and Professionally Experienced in Project Controls, 
 - 💞️ I’m looking to collaborate on similarly interested teams or members
 - 📫 How to reach me : ysshivar@yahoo.com
 - 😄 Pronouns: ...
