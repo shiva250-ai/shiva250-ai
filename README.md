@@ -2,7 +2,7 @@
 
 ### About Me
 
-I am a seasoned professional leveraging a robust background in **Industrial Engineering (PDACE)** and a **Management degree (JNTU)**. My expertise is further solidified by certifications in **Artificial Intelligence (AI), Machine Learning (ML), Data Science, and Natural Language Processing (NLP) from MIT**. I am passionate about developing and implementing **No-Code AI solutions** that drive efficiency and create tangible value.
+I am a seasoned professional leveraging a robust background in **Industrial Engineering (PDACE)** and a **Management degree (JNTU)**. My expertise is further solidified by certifications in **Artificial Intelligence (AI), Machine Learning (ML), Data Science, and Natural Language Processing (NLP) from MIT**. I am passionate about developing and implementing **No-Code AI solutions** that drive efficiency and create tangible value and raise the bar for Engineers of future.
 
 ### Interests
 
