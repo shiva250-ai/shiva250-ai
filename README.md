@@ -21,7 +21,7 @@ I am actively looking to partner with **visionary teams, passionate individuals,
 
 My profound outcome is to create **Value for current & future generations**, fostering **self-actualization, health, happiness, and wealth**.
 
-**Core Principles:** I believe in **Enjoying Work Ethically and with Devotion**, and showing **Respect to all around and Gratitude to my Guru's!**
+**Core Principles:** I believe in **Enjoying Work with Devotion**, and showing **Respect to all around and Gratitude to my Guru's!**
 
 **Vision:** **Seeing Vaudaiva Kutumbam and RamaRajya around the globe**
 
