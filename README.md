@@ -1,4 +1,4 @@
-# @shiva250-ai: Bridging Industrial Engineering with Cutting-Edge AI for Sustainable Impact
+# @shiva250-ai: Project Controls Manager / Senior Level Executive
 
 ### About Me
 
