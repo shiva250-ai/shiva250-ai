@@ -23,7 +23,7 @@ My profound outcome is to create **Value for current & future generations**, fos
 
 **Core Principles:** I believe in **Enjoying Work with Devotion**, and showing **Respect to all around and Gratitude to my Guru's!**
 
-**Vision:** **Seeing Vaudaiva Kutumbam and RamaRajya around the globe**
+**Vision:** **Seeing Vasudaiva Kutumbam and RamaRajya around the globe**
 
 ### Connect With Me
 
